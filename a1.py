@@ -1,1 +1,2 @@
-assdasdxzcasljcxjvxcjvl 50%
+assdasdxzcasljcxjvxcjvl 100%
+asdaslj other function
